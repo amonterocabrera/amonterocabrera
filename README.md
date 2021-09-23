@@ -1,4 +1,4 @@
-### Hi there, 👋 I'm Aristides Montero
+### Hi there, 👋 I'm Arístides Montero
 
 ## I'm software architect, developer and father.
 
